@@ -9,7 +9,7 @@ The slow do not survive, the weak do not survive, the injured do not survive. Th
 #### Last Rites
 The Last Rites said about the dead are as follows,
 > Daybreak has come,
-> and taken those still young.
+> those still young pass.
 > 
 > Wake now from this dream,
 > and may the Divine welcome you.
