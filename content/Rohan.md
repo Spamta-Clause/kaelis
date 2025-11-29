@@ -1,4 +1,4 @@
-> ***[[#The Divine]]*** 
+> - **[[#The Divine]]** 
 # The Divine
 Known by either *The Deities* or *The Divine*. 
 
